@@ -27,3 +27,6 @@ https://www.se-radio.net/2020/08/episode-420-ryan-ripley-on-making-scrum-work/
 
 Episode 161: Agile Product Management with Roman Pichler : Software Engineering Radio
 https://www.se-radio.net/2010/05/episode-161-agile-product-management-with-roman-pichler/
+
+Udemy Agile Scrum Training Plus Scrum Certification Prep Training in git dot ir
+Udemy Scrum Master Training – 2020 in p30download dot ir
